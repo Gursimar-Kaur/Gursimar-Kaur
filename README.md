@@ -3,7 +3,7 @@
 - 👀 I’m interested in learning to play guitar, even though I don't know how to play it yet.
 - 🌱 I’m currently learning French and building software.
 - 💞️ I’m looking to collaborate on Events and Workshops.
-- 📫 How to reach me linkedin-
+- 📫 How to reach me linkedin- [My LinkedIn Profile](https://www.linkedin.com/in/gursimar-kaler/)
 - ⚡ Fun fact: I don’t have a fun fact about me— unless you consider my extraordinary talent for talking to pets like they understand every word!
 
 <!---
